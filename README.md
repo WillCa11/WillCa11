@@ -1,5 +1,7 @@
 ## Hi there 👋
-
+Sound Designer
+Filmmaker 
+Neandertal 
 <!--
 **WillCa11/WillCa11** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
