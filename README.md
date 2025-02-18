@@ -1,4 +1,4 @@
-## Hi there 👋 Will Call it a
+## Will C. 
 Sound Designer,
 Filmmaker, 
 Neandertal.
